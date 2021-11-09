@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @reid2217
-- 👀 I’m interested in ... you. 
+- 👀 I’m interested in ... men. 
 - 🌱 I’m currently learning ... java and python
 - 💞️ I’m looking to collaborate on ... 
 - 📫 How to reach me ... do not.
